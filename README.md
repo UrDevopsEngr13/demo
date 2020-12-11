@@ -4,4 +4,4 @@ This is a new file for reading purposes only.
 
 # Do IT in for the praise and glory of His name. 
 
-# Everything I am and everything I have is by the glory of God through his Son My Savior.
+# Everything I am and everything I have is by the glory of God through his Son My Savior, Jesus Christ.
