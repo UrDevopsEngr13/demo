@@ -1,4 +1,4 @@
-This is a new file for reading purposes only.
+This, I hope, will not be as bad.
 
 # New edit on readme file. This is helpful in understanding this directory.
 
